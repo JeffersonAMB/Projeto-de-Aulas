@@ -102,9 +102,13 @@ Consegue criar desde ferramentas funcionais até páginas de alta conversão.
 Desenvolvedor que:
 
 ✅ Cria landing pages que geram leads reais
+
 ✅ Entende marketing digital e funis de conversão
+
 ✅ Combina técnica + negócios em cada projeto
+
 ✅ Pensa em resultados comerciais, não apenas código
+
 
 = Investimento que se paga através de conversões
 
