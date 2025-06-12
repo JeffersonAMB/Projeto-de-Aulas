@@ -115,8 +115,11 @@ Desenvolvedor que:
 demonstrando domínio em:
 
 Lógica e APIs (Conversor)
+
 Design e UX (Instagram)
+
 Marketing e Conversão (We Care)
+
 
 Resultado: Desenvolvedor que entende o negócio digital completo
 
